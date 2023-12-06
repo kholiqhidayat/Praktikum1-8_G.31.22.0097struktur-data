@@ -1,0 +1,1 @@
+# Praktikum1-8_G.31.22.0097struktur-data
